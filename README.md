@@ -1,7 +1,7 @@
 # Boxiang's Firts Digital CV
 
 ## Personal General Information:
-1. sex : Male
+1. Sex : Male
 2. Hometown: Dalian, Liaoning, China
 3. Current School: Unversity of Toronto, undergraduate
 4. Language Skills: Mandarin, English, Japanese
