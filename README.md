@@ -18,5 +18,14 @@
 
 
 ## Personal Activities and Special Experiences
+1. Played in school soccer team (Primary school, Junior high school & High school) 
+2. Created a secret poetry society with my friends, and have write several poems.
+3. Completed oversea study tours in Singapore, America, and Japan.
+4. Learning experience of violin and guitar playing. 
+
+
+
+
+
 
 ## Future Plan
