@@ -29,3 +29,20 @@
 
 
 ## Future Plan
+### Specific:
+2021 summer:
+1. Get the driving license.
+2. Working experience in Starbucks.
+3. Learn about CFA materials.
+4. Read 4 books.
+
+### General:
+1. Pass the GRE test.
+2. Pass the CFA certificate examination.
+3. Apply for a graduate program in an American university or an European university.
+4. Intership in a foreign bank
+5. Apply for a formal banking job in China
+6. After working for several years, apply for a doctor degree.
+7. Pass certain tests, and become a university professor.
+8. At the same time, become a part-time consultant of several firms.
+9.  Join the Natinal think-thank.
