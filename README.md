@@ -14,14 +14,17 @@
 2014 ~ 2017  Dalian No. 24 High School\
 2017 ~ 2018  Gap Year (Experiental Study in the USA)\
 2018 ~ 2019  Gap Year (Experiental Study in Japan)\
-2019 ~ now   University of Toronto, Undergraduate (Statistics Specialist + Economy Major)
+2019 ~ now   University of Toronto, Undergraduate (Statistics Major + Economy Major)
 
 
 ## Personal Activities and Special Experiences
 1. Played in school soccer team (Primary school, Junior high school & High school) 
 2. Created a secret poetry society with my friends, and have write several poems.
 3. Completed oversea study tours in Singapore, America, and Japan.
-4. Learning experience of violin and guitar playing. 
+4. Learning experience of violin and guitar playing.
+5. Joined the High sachool choir, and have performed in school ceremony about 4 times.
+6. Have participated in three school drama performances in highschool.
+
 
 
 
